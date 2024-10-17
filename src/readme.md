@@ -1,0 +1,1 @@
+Este miércoles, Concacaf ha oficializado el crucede la Selección Mayor Masculina vs Costa Rica por los cuartos de final
